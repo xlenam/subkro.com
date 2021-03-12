@@ -2,15 +2,15 @@
 
 > Estamos mejorando la web para ofrecer un mejor servicio a nuestros clientes.
 
-## Por favor, para reservar contacte con nosotros a través de estos canales:
+### Por favor, para reservar contacte con nosotros a través de estos canales:
 
-## Teléfono: 638 151 849 / 633 373 713
+### Teléfono: 638 151 849 / 633 373 713
 
-## Email: subkro@hotmail.com
+### Email: subkro@hotmail.com
 
-## Facebook: [https://www.facebook.com/subkro](https://www.facebook.com/subkro/).
+### Facebook: [https://www.facebook.com/subkro](https://www.facebook.com/subkro/).
 
-## Instagram: [https://www.instagram.com/subkro_tgn/](https://www.instagram.com/subkro_tgn/?hl=es).
+### Instagram: [https://www.instagram.com/subkro_tgn/](https://www.instagram.com/subkro_tgn/?hl=es).
 
 ### ¿Quienes somos?
 
