@@ -1,14 +1,16 @@
 ## Buceo en Tarragona Subkro: Centro de buceo - Cursos SSI
 
-## Estamos mejorando la web para ofrecer un mejor servicio a nuestros clientes.
+> Estamos mejorando la web para ofrecer un mejor servicio a nuestros clientes.
 
 ## Por favor, para reservar contacte con nosotros a través de estos canales:
 
-## TEL. 638 151 849 / 633 373 713 (subkro@hotmail.com)
+## Teléfono: 638 151 849 / 633 373 713
 
-## Facebook: [GitHub Flavored Markdown](https://www.facebook.com/subkro/).
+## Email: subkro@hotmail.com
 
-## Instagram: [GitHub Flavored Markdown](https://www.instagram.com/subkro_tgn/?hl=es).
+## Facebook: [https://www.facebook.com/subkro](https://www.facebook.com/subkro/).
+
+## Instagram: [https://www.instagram.com/subkro_tgn/](https://www.instagram.com/subkro_tgn/?hl=es).
 
 ### ¿Quienes somos?
 
